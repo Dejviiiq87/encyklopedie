@@ -1,0 +1,2 @@
+# encyklopedie
+Necyklopedická Encyklopedie
